@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KashishMukharjee
 - 👀 I’m interested in music,sports,coding
-- 🌱 I’m currently in Btech CSE in LPU
+- 🌱 I’m currently doing Btech CSE
 - 💞️ I’m looking to learn codings and professional needs
 - 📫 How to reach me from www.linkedin.com/in/kashish-mukharjee 
 
